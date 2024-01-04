@@ -1,0 +1,1 @@
+# wagi_activities
